@@ -1,2 +1,1 @@
-# https-newsletter.bigcommerce.com-
-https://newsletter.bigcommerce.com/  TAKEOVER
+(https://dimitrivegaslikemike.press.tomorrowland.com/)  TAKEOVER
